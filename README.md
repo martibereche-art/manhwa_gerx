@@ -1,1 +1,0 @@
-# manhwa_gerx
